@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @simplylate
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning lots of languagaes
